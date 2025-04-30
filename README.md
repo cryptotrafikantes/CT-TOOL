@@ -16,7 +16,7 @@ You will get full tutorial from our sellers ✔️
 
 Went to re-code the whole program to fully work without any bugs
 
-Uploaded video tutorial ( If you need any info ask our seller down bellow )
+Video tutorial available in DMs ( If you need any info ask our seller down bellow )
 
 After every process you now get $125 + ( If you get lower amount DM our seller )
 
