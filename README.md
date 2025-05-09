@@ -12,6 +12,14 @@ You will get full tutorial from our sellers ✔️
 
 # UPDATES 
 
+### Update 1.1 (09.05)
+
+New seller in our team
+
+New bypass system, after processes we went to $213 minimum
+
+Bitcoin is back, finally bypassed too.
+
 ### Update 1.0 ( 01.30 )
 
 Went to re-code the whole program to fully work without any bugs
