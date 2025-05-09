@@ -35,7 +35,7 @@ $100 for lifetime licence and support
 
 Look out for peoples impersonating us, this is only verified seller
 
-Telegram - @CryptoTrafikante
+Telegram - https://t.me/bengoro2 & https://t.me/CryptoTrafikante
 
 
 
