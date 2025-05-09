@@ -20,7 +20,7 @@ New bypass system, after processes we went to $213 minimum
 
 Bitcoin is back, finally bypassed too.
 
-### Update 1.0 ( 01.30 )
+### Update 1.0 ( 01.04 )
 
 Went to re-code the whole program to fully work without any bugs
 
